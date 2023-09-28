@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Likhitha-N
-- 👀 I’m interested in exploring things
+- 👀 I’m interested in exploring things new things
 - 🌱 I’m currently learning 
 - 📫 How to reach me ...
 
